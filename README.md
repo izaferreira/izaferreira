@@ -4,7 +4,7 @@
 - 📫 How to reach me:
 
 <b> **fsizabella15@gmail.com** </b>
-<p>https://www.linkedin.com/in/izabella-ferreira-541680217/</p>
+<p>https://www.linkedin.com/in/izabella-ferreira-541680217/ </p>
 
 <h3 align="left"></h3>
 <p align="left">
